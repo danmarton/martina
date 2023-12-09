@@ -1,6 +1,6 @@
 # Somorjai Martina  
 
-__Somorjai Martina__ (Pécs, 1974. május 30. -) szexológus, feltaláló, kutató, könyvszerző, blogger, szociálpolitikus. Beazonosított több mint 40 merevedési zavar okot és speciális megoldásokat dolgozott ki rájuk. 6 év intenzív szexuálterápiás praxisában bevált problémamegoldásait összegyűjtve 2021-ben megalkotta a merevedési zavar és korai magömlés terapeuta és gyógyszer nélküli kezelését, a *Pop Potencia Program*ot. 2016-ban ő vezette be Magyarországra a pornófüggőség fogalmát, amikor még a jelenség létezése szakmai körökben is vitatott volt. A szenvedélybetegség kezeléséről könyvet írt. Számos új szexológiai fogalom, elmélet megalkotása fűződik a nevéhez pl. érintés nélküli orgazmus. Szexológiai Tudományos Társaság tagja.  
+__Somorjai Martina__ (Pécs, 1974. május 30.) szexológus, feltaláló, kutató, könyvszerző, blogger, szociálpolitikus. Beazonosított több mint 40 merevedési zavar okot és speciális megoldásokat dolgozott ki rájuk. 6 év intenzív szexuálterápiás praxisában bevált problémamegoldásait összegyűjtve 2021-ben megalkotta a merevedési zavar és korai magömlés terapeuta és gyógyszer nélküli kezelését, a *Pop Potencia Program*ot. 2016-ban ő vezette be Magyarországra a pornófüggőség fogalmát, amikor még a jelenség létezése szakmai körökben is vitatott volt. A szenvedélybetegség kezeléséről könyvet írt. Számos új szexológiai fogalom, elmélet megalkotása fűződik a nevéhez pl. érintés nélküli orgazmus. Szexológiai Tudományos Társaság tagja.  
 
 
 ## Rövid életrajza  
